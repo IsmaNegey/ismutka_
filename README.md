@@ -1,8 +1,5 @@
-## Hi ! My name is Abdulaev Ismael, but you can call me **Isma**.
-
-### Nalchzik / Nizhniy Novgorod :+1: 
----
+Hi ! My name is Abdulaev Ismael, but you can call me Isma.
+Nalchzik / Nizhniy Novgorod :thumbsup:
 I love shawarma in Lvovka st.
 
-
-![](//i.ytimg.com/vi/fM47bSHUMXc/maxresdefault.jpg)
+![image](https://github.com/user-attachments/assets/f03781b2-47ac-4321-aad5-be98784506da)
